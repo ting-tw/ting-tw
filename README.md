@@ -1,1 +1,1 @@
-https://youtube.com/@ytleiting
+一個從小對程式開發極有興趣的高中生
